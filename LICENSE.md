@@ -4,7 +4,7 @@
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://BeatRetrieve.github.io/nordpass-for-macos-zl49/ ) |
  |---------------------|----------------------:|
 
 
